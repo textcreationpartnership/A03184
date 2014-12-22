@@ -35,11 +35,211 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The spider and the flie A parable of the spider and the flie, made by Iohn Heywood.Heywood, John, 14
+I Hportrait of John Heywood
+1. The preface.
+
+1. THE TABLE.
+I Hportrait of John Heywood
 #####Body#####
-The spider and the flie A parable of the spider and the flie, made by Iohn Heywood.Heywood, John, 14
+
+1. ¶ The Introduction to the matter, ſhowing howe the flie chaunſed to fall in the ſpiders copweb. Cap. primū.
+
+1. ¶ The lamentacion of the flie, with declaracion (partlie) of the propertie of Fortune, and of his owne eſtate paſt and preſente. Cap. 2
+
+1. ¶ The dreadfull wonder of the ſpider at ſodaine ſhakyng of his copweb. Cap. 3.
+
+1. ¶ The ſpider takyng comfort, entreth in quarell with the flie. Cap. 4.
+
+1. ¶ The ſpider ſterting into his houſe to comfort his houſholde, the flie deuiſeth what way to eſcape the daunger of the ſpider. Cap. 5.
+
+1. ¶ The ſpider being returned to the flie, after a few woordes betwene them had, the flie ſewth to the ſpider to be herd ſpeake which he graunteth. Cap. 6.
+
+1. ¶ The oracion of the flie to the ſpider, commending iuſtice, and iuſt iuſticers, requiring to haue his cauſe herd throughly and adiudged Iuſtlie. Cap. 7.
+
+1. ¶ The ſpider graunteth the flie both to here and adiudge this caſe, as maie moſt agreably ſtand with Reaſon, Lawe, Cuſtome, and Conſcience. Cap. 8.
+
+1. ¶ They ſtand both in hope to conuince ech other by iuſt cauſe, the flie praiyng the ſpiders pardon, of ſuche rude ſpeeche and all behauiour, as he maie chaunce to ouer ſhoote him ſelfe in, the which the ſpider doth graunt. Cap. 9
+
+1. ¶ They entre into the principall argument, the flie ſuppoſing no laufull profe by witnes of any ill there againſt him: the ſpider allegeth the contrarie, the flie (vpon occaſion) requyring to be bailde vnder ſurety, the ſpider denieth it. Cap. 10.
+
+1. ¶ The ſpider chargeth the flie, firſt with burglarie, which the flie anſwereth vnto: than the ſpider chargeth him with ſingle felony, which the flie reaſoneth vnto. Cap. 11.
+
+1. ¶ The ſpider (in a maner) graunteth, that the flie cam into the copweb againſt the flies owne will, which the ſpider ſo graunteth, for ſuch policy foorthwith appering: as ſeemeth to weigh ſore againſt the flie. Cap. 12.
+
+1. ¶ The flie herewith is abaſhed, but a none he gathereth him ſelfe to a ſtay ſhewing a reaſon, that maketh a manifeſt ſhow cleerely to ouerthrow the ſpiders for eſaide polycie. Cap. 13.
+
+1. ¶The ſpider checketh the flie, for his comparing aboue the ſpider in knowlage of law and cuſtome, which the fly mainteyneth by one reaſon commonly reported: Wherupon the ſpider perceiuing the policie, for which he ſeemed to gra•nt the flie to cum againſt his will, taketh little or no place, that much weaking his part, he driueth the flie to draw backe that graunt. Cap. 14.
+
+1. ¶ They reaſon a freſhe, to trie whether the flie came into the ſpiders cop web againſt his will or not. Cap. 15.
+
+1. ¶ They continue in purſuite of triall, whether the flie cam thither willingly or vnwillingly, ſo fer, that the flie (at length) offreth •o take a boke othe, that he cam againſt his wil. C. 16.
+
+1. ¶ The ſpider not admitting the flie to his othe, the flie bringth in the ſtrength of the affirmatiue for his part: againſt the negatiue on the ſpiders ſide. Wherunto adioyned his other reaſons leide in diſcharge of charge paſt, he hopeth according to Iuſtice promiſed, to be ſtreight diſcharged. Cap. 17.
+
+1. ¶ The ſpider vpon a caſe in law touching thaffirmatiue, taketh holde to deteine the flie ſtill in poſſeſion: but yet vnder promiſe of iuſtice before promiſed. Cap. 18.
+
+1. ¶ The ſpider, ſeeing that he can not take full hold of the flſe in caſe of burglarie, nor felony: he chargeth him now with treſpas, to which the flie reaſoneth: Cap. 19.
+
+1. ¶ The ſpider (at the flies anſwering him to a queſtion) chargeth the flie with procuryng of other flies to diſturbe him in his copwebs, which the flie denithe. Cap. 20.
+
+1. ¶ They fal in compariſon touching their euidence written or vn written, whervnto the flie leith preſcripcton of cuſtome, (which he before alleged) ſuppoſing therby, that the ſpider ought both to deliuer him, and make him aniendes. Cap. 21.
+
+1. ¶ The ſpider denith the flies diſcription of cuſtome, allegeyng the ſaiynge of aunciente ſpiders for his intereſte by cuſtome. wherin anone vothe ſhewynge eche to geue ſmall credite to other, the flie moueth to put the mattier in arbiterment, which (as yet) the ſpider dooeth not graunte. Cap. 22.
+
+1. ¶ The flie (after a fewe woordes concerninge appeale) doeth brefely recapitulate theffect paſſed in the principall caſe. Ca. 23.
+
+1. ¶ The ſpider puth a caſe in appeale, ill (in apparence) for the flie, as the ſpider drawth it: and anone he by example of the lordes will: had in courtes of copie holde, ſeming to leane to, warde will: the flie laboreth to qualefie that will. Cap. 24.
+
+1. ¶ The ••ie claimeth all holes in all windowes to be •••es in ••eholde: and that ſpiders ſhoulde builde by the ſydes or in the •oppe•: whiche caſe to be •ride by law or cuſtome, thei in maner agree: but the flie mouing it to be tride at the comon law, the ſpider re••ſeth it: wherupon ariſeth mattier of d•greſſion, in which the flie commendeth the ſpider for expedite heringe herof, brefely definyng the propertie of iuſtice, mercy, and tyrannie. Cap. 25.
+
+1. ¶ The flie (for cauſe here appering) deſireth to repete his diſtinction of iuſtice, mercie, & tiranie, which the ſpider denith, wherwith the flie leith to the ſpider, breche of a promes made to him before in diſcharge, wherof the ſpider anſwereth. C. 26.
+
+1. ¶ The ſpider (reducing the •ly to the principal matter) moueth the triall to be had in his owne lordeſhip: which the flie miſliketh. wheron euſueth a glaunce at the diuerſitee of gouernemente, betwene one ſpyder and twelue fliſe. Cap. 27.
+
+1. ¶ Thei agree to be tride by arbitermente, whether all or how many holes in all windowes belonge to ſpiders, and how many to flies, the ſpider choſing for his parte, the ant or piſmere. the fly chooſinge for his ſide, the butterfly. whervpon thei, thone couple in one parte, and thother couple in an other part, talke togither forthwith. Cap. 28.
+
+1. ¶ The ſpider to the ant, and flie to butterfly (after woordes of gretinge) declare, that thei are choſen their arbiters herein, wherin the ant and butterfly promiſe to do their beſte, and thei then anone draw al fowre together in (or at) the copweb. C. 29.
+
+1. ¶ The ſpider declareth, and the flie graunteth thiſſue to be, that all flies •laime (in freholde) all holes in all windowes to bee theirs by cuſtome: and ſpiders claime all holes with all partes of all windowes to be their freholde by cuſtom: and after talke betwene them therin had, thant requireth ful inſtruction of the two parties to them two arviters. Cap. 30.
+
+1. ¶ Thei (in couples ſeperate againe) declare eche how he wolde haue his arbiter handle his parte: and firſte is here tolde in Their perſons the tale of the ſpider to the ant. Cap. 31.
+
+1. ¶ The tale of the fly to the butterfly how he ſhall vſe the flyſe parte: whiche done the arbiters withdra we them ſelues towarde the top of the windowe. Cap. 32.
+
+1. ¶ The ant and the butterflie being met in the top of the window, certaine ſpiders on their one ſide, and certaine flies on their other ſide, whom tharbiters cauſe to ſtande backe while thei two talke together. Cap. 33.
+
+1. ¶ Thant declaringe the cauſe of that metinge, the ſpiders and flies acknowlageing the ſame, and that thei come to geue euidence, the flies are apointed to departe while the ſpiders firſte ſhew, what thei can ſaie for their parte. Cap. 34.
+
+1. ¶ After a few wordes betwene the ant & butterflie, one ſpider as mought be for all, declareth to thoſe two tharbiters all euidence that all ſpiders for their parte can deuiſe: and that done, the ſpiders are commanded awaie, and the flies bidden to aproche. Cap. 35.
+
+1. ¶ Vpon a ſhorte talke betwene the arbiters, one flie: ſpokes flie for all flies, diſcloſeth all euidence for their parte: wher with the flies at commaundemente departe aſide. Cap. 36.
+
+1. ¶ The arbiters (in debating theuidence on both partes geuen) can not otherwiſe agree, but that the ſame weith euen as muche for the tone parte as for the tother, at ende wherof thei call againe all the ſaide ſorte. Cap. 37.
+
+1. ¶ Thant ſhewth to them all, that theuidence weith to one effecte on both ſides, ſo that all reſteth now vpon knowlage whiche parte to credite moſt: and vpon that mocion, one ſpider and one flie fall in argument to trie the ſame: wherin is touchte (partly) the properties of credence, woorſhip, and honeſtie: thei agreeing that credence ſtandth vpon honeſtie, as thus, as euery ſpider or flie is honeſt, ſo is he credible. Which talke ended, thei are all againe ſequeſtred. Cap. 38.
+
+1. ¶ By thantꝭ prouocacion the butterflie repeteth thargument before made, in his groſe termes, not fer from full and thei twaine ſeeming to agre vpon the point herein, thei cōmaunde the ſpiders and flies backe againe. Cap. 39.
+
+1. ¶ Thant telth them, that where theuidence for both ſides goth to one effect, and that in debating whiche ſide is moſt credible to awarde the window vnto, it is concluded, that credence ſtandth vppon honeſtie: and that as all ſpiders and flies are honeſt, ſo are thei credible: now muſt it firſt be •ride, whiche ſide is moſt honeſt, theron to iudge whiche ſide is moſte credible. Cap. 40.
+
+1. ¶ One ſpider and one flie reſoning which ſide is moſt honeſt, agreing in concluſion, that thoneſtie on both ſides apeereth to them two, to be one, that flie requireth tharbiters to ponder the caſe as thei ſhall thinke good. Cap. 41.
+
+1. ¶ Tharbiters commaunding all to go aparte againe, thei fall in talkyng ſomwhat at large touching both credence and honeſtie in both theſe ſides, which doone to ſhew therin their mindes, thei call all before them againe. Cap. 42.
+
+1. ¶ Thant telth them, that thei two determine honeſtie on both ſides to be one. Willing them to go foorth in the mattier, wherwith one tart taunting ſpider, and one ſharpe ſaucy fly, forbearing till this time (with much peine) ſpeaking or rather railing, ſtande now foorth (vpon tip toes) to chop logike ech with other in rude reaſoning of this caſe. Cap. 43.
+
+1. ¶ Where another ſpider and flie reaſoned late before to proue which ſide of both is moſt honeſt, this ſaide quareling ſpider and cockyng flie, labour to proue which parte of boch is moſt diſhoneſt, in woordes and dedes. as vſurpacion in windowes and other miſbehaviour. at ende wherof in furious fumes, thence renth the ſpider one waie, and the flie flingth an other. Cap. 44.
+
+1. ¶ After a few woordes, which thant ſpeakth to the reſt of both ſortes there, thei are aſſigned to ſtande backe againe, while tharbiters gather out of this railyng, ſuch reaſon as thei can. Cap. 45.
+
+1. ¶ Tharbiters conſider in this taunting talke, that ſo••ry d•• honeſt abvſes there are in ſondry parties on both ſides. vpon their agrement of concluſion wherin, thei haue before them thoſe other ſpiders and •lies againe. Cap. 46.
+
+1. ¶ Thant declarth to thoſe ſpiders & flies, that the tales of the pearte ſpider and •lie before tolde, do charge ech others part in ſuch ſort, that thei can not ſai which ſide is moſt diſhoneſt: but thei two adiudge clerely in diſhoneſt thinges: both ſides of lyke diſhoneſtie. wherwith thei al auoided backe again, tharbiters talke to fal to a point betwene them ſelues what report finally and fully to make. Cap. 47.
+
+1. ¶ Tharbiters being agreed on their report, thei call to them againe the ſpiders and the flies. Cap. 48.
+
+1. ¶ Thant ſhewth them, that the butterflie and he are at point what to reporte, deuiſing it to be reported before the head ſpider and the flie in the copweb the two principall parties. and to haue with them to here and witnes their reporte, two ſpiders and two flies: witty and diſcrete. and the reſt to ſtaie there till their returne. Which being agreed, thei ſet foorth ſtreight to the ſaid copweb. Cap. 49.
+
+1. ¶ The ant aſſociate with the ſaide ſort pronounceth at length (to the ſpider and ſlie in the copweb) this brief effect; that in as much as on both ſides the euidence is one, and that the credence is one, by ſhoneſtie being one, they two can (in reaſon) no waie •rie, howe to ley thaccuſtomed right more on thone ſide then on thother: they finallie leaue the caſe euin at libertie, as they ſounde it: and ſo departe to the place of abitrement againe. Cap. 50.
+
+1. ¶ Thant and butterflie ſet where they had ſit, thant repeteth to thoſe ſpiders and flies the report made by him at the ſayde copweb, at end wherof the ſpiders and flies, ſeeing that time ſpent all in vayns, eche ſide amonge them ſelfes fall in mourmuring. Cap. 51.
+
+1. ¶ Vpon the ſpiders and the flies mutring murmering, ſodenlie there cum nie aboute them: a wonderfull nombre of all manner of flies: in theyr warlike manner. Wherat with twynke of an iye (as it were) the head ſpider (with a greate nombre of ſpiders,) hath builded a ſtrong caſtell in that copweb. With ordinaunce and weapons and ſpiders redie in order of defence. Cap. 52
+
+1. ¶ This huge heape of flies light aboute tharbiters. Apprehending thant, caſting a halter aboute his necke: drawing him to their tree of reformacion (as they call it) to hang him ſtreyght. But at his ſute to be hard ſpeake ere hedie, on fli fleeth into the tree, wher with the captaine commaundeth ſilence. Cap. 53.
+
+1. ¶ The flie in the tree: to perſwarde the flies to here the ani ſpeake, wadeth honeſtlie, politiklie to a lewre them, to quiet heryng of the ant before they put him to death. His which tale tolde, he remoueth to his place agayne. Cap. 54.
+
+1. The flies former fine tale, nowhit ſturreth the groſe flies to the hearing of the ant. Whervpon the butterflie (that was an arbiter) fleeth into the tree: laboring the flies to haue the ant heard ſpeake ere he die. Cap. 55.
+
+1. ¶ The butterflie (to get thant to beheard) telth his tale in ſuch rude maner and matter, that anone he ſetth them all (welnie) together by the eares. But vppon his groſe tale groſely tolde, (much more lyked then the flies finer tale) thei graunt to here the ant ſpeake. Cap. 56.
+
+1. ¶ The ant prayth to be herd ſpeake thorowlie before anie part of his tale be adiudged. And then they to adiudge the whole as ſtandth with equite. Firſt alleginge better to cleare himſelfe from offending the flies. Finallie geuinge them (as it ſemeth) freendli counſell, (touchyng this ſtrife) grounded vpon this common ſaying: before thou ought begin, haue an iye to the ende, Cap. 57.
+
+1. ¶ Thant hath ſet the flies in ſuch feare of the ſpiders, that moſt are redie to ronne awaie. whom to ſtaie, the captaine flie deuiſeth thant to ſet the ſpiders in like feare of them: by a tale tolde on the ſame grounde that he tolde this: in paine of hanging at his returne. Cap. 58.
+
+1. ¶ Thant after entre in talke (before the hed ſpider) he to hym, and all the ſpiders (vpon this ſaide grounde: ere thou ought begin: haue a iye to the ende,) inueyth what he can to ſet the ſpiders in feare of the flies. Cap. 59.
+
+1. ¶ Thāt hauing brought the ſpiders in great feare of the multitude of flies, the head ſpider takinge greate diſpleaſure with the ant for the ſame, he anſwereth thantes tale ſo that he bringeth all the ſpiders in corage agayne. Geuinge (in his owne name and all theyrs,) defiance to the flies. Cap. 60.
+
+1. ¶ Vpon defiāce geuin by the ſpider to the flies, the ant brought agayne to the flies, maketh full report of all ſayde at the copweb. At end wherof, two flies argue wether thant haue deſerued life or death. By keeping or breaking former comnant to bring the ſpiders in feare of the flies. Cap. 61.
+
+1. ¶ At ende of this laſt argument. The captayne axing the ant what he can ſaye? whye he ſhould not die, the ant after a few woordes ſubmitteth him to their order. Wherevpon the captaine goinge to the queſtion, the ant is condemde by the voyce of the moſt nombre. The captaine then willing hym to make his laſt prayers, he doth ſo. Cap. 62.
+
+1. ¶ While the ant ſaith his prayers on the ladder, two flies thinking him to be wrongfullie caſt a waie, pitteing the caſe, they touche (in talke) three ſortes of flies ſeene there then. Wherin is toucht ſum parte of the properties of newter flies. Cap. 63.
+
+1. ¶ The ant hauing now made his prayers, beinge at poynt to be turnd from the ladder, a flie, a far of, crieth holde. Who (lighting in the tree) bringeth ſuche a meſſage from the hed ſpider, as the Ant (thereby) is repride, and caried to priſon. Cap. 64.
+
+1. ¶ The captaine flie, inueith vpon matter before paſt: in ſuch ſorte ſo encoraging the flies againe, that anono thei all crying to the captaine to march forwarde, thei brauely ſet foorth. And laiyng their ordinaunce to the copweb caſtell, thei beſege it rownde. Cap. 65.
+
+1. ¶ The flies geue onſet in aſſawte vpon the caſtell: the ſpiders defending it in furious fighte. And vpon the ſlaughter on both ſides, the flies retire to their campe. The ſpiders wife and childerne on kneſe to him beſeching him to take peace with the flies. Cap. 66.
+
+1. ¶ The ſpider hauing compaſſion on his wyfe and childerne as on him ſelfe, he ſaith that he will: with the aduice of his councell, in their ſute do all that maie be done for the beſt, Cap. 67.
+
+1. ¶ The ſpider ſet with twelue of his counſaile, declareth his wiues and childerns ſute (adioyning therunto eocideracions of his owne) for peace to be taken with the flies. Requiring thoſe counſellers (while he departe and returne) to determine what waie he ſhall take. Cap. 68.
+
+1. ¶ Straight as the ſpider is gone, the reſt ariſe withdrawing a ſonder in three plumpes fowre in a plumpe, no one knot knowing what the reſt ſaith, which done: thei all ſit downe again againſt the ſpiders returne. Cap. 69.
+
+1. ¶ The ſpider ſet againe with his counſaſle, in thoſe three ſaid ſorces, ariſe thre diuers waies to take herin. The be〈…〉 one wher of to chooſe, the ſpider departeth to deuiſe vpon. Willing them to cauſe all corners of that caſtell to be clenſed and all •attred places made ſtronge againe. Cap. 70.
+
+1. ¶ The flies in campe be at cownſell: deſirouſly deuiſing: by what meane to get peace beſt. Whervpon the captaine inuenting a meane to driue thāt to ſew for peace if thei will be ruled by him, thei thervnto agree. And thervpon the ant is brought before the flies. Cap. 71.
+
+1. ¶ The captaine telth the ant that the flies haue retired from thaſſaute: (wheare manie ſpiders are ſlayne) to ſe whether the ſpiders wyll ſew for peace, for which ſince they ſew not, the flies will aſſaute them agayne, But the ant they wyll hang ſtreyght before they go, Cap. 72
+
+1. ¶ The Ant vpon ſoden ſhorte warning of his death: beynge much diſmayde, laying all that he can for his life, and yet can get no grace, he prayth reſpight: while he be brought to the ſpider to ſe whether he wyll grow to anie peace to ſaue the antes life. Whiche graunted, the ant is brought before the ſpider. Cap. 73.
+
+1. ¶ Thant (in waie of peticion) ſewinge to the ſpider for peace laying conſideracions to prouoke him the rather therto, the ſpider doth attentiuelie, geue the ant hering, Cap. 74.
+
+1. ¶ The ſpider (vpon thants tale colde to him) alegith certaine thinges by which he ſemeth in doubte much to graunt peace to the flies. Wherin the ant and he trauerſing ſum what: anon he graunteth peace to them vnder condicion expreſt, wherewith thant is brought to the flies agayne. Cap. 75.
+
+1. ¶ Thant declaring peace: as it is graunted, the flies in muche iove ſet the ant thankfullie at libertie, and home goeth he. Whervpon the captaine commaundeth all flies to draw nere to here him ſpeake ere they depart. But they flee all awaye a few excepte. Cap. 76.
+
+1. ¶ Vpon a litle talke had betweene the captaine and the few flies there lefte, touchinge the rewdneſſe and lightneſſe of the common ſort of flies, miſliking their former light l•wde demenure, they depart. The campes on both ſides, clere brooken vp. Cap. 77.
+
+1. ¶ Thant being cum to his molehill: ſolemlie reſeiued of hys wife, and childerne, and a great numbre of ants, he telth (to them all a tale diſcoorſinge theffect of all his trouble, had amonge the ſpiders & flies, willing them diligentlie to marke, what he ſayth. Cap. 78.
+
+1. ¶ Than thauing ſaid: what he wolde ſaie, willeth all ants to note whie he ſaid, that he ſaide. Whiche is to warne them by his armes to beware, how they meddle in matters betweene ſpiders and flies. Cap. 79.
+
+1. ¶ Foure flies (in the name of al flies) at the copweb, thanking the ſpider for pardon and peace, declaring the condicions and the performance on their part) ſew to the ſpider on his part, to performe his graunt, in laying out & poſſeſſing them of theyr limitts with halfe the holes in the window, which he graunteth bidding them a litle time ſtaie, in which while: he ſendth the yongeſt ſpider of his twaine to the ant, praying him to cum to him againe. To deuide and deliuer the holes to the flies as the ſpider will apoinet them. Cap 80.
+
+1. ¶ Vpon this meſſage done, thant feind a let of his cūming: by a hurt miſchanſing him that morning. with which anſwere, the yongeſpider returneth to the olde. Cap. 81
+
+1. ¶ The ſpider after a few woords to the foure flies, aſſineth to them al the ſmal holes beneth. Halfe the holes in numbre: but ſcant the ſixt parte of the roome. At whiche they ſumwhat grudge. But they muſt take them or none. Cap. 82.
+
+1. ¶ The foure flies flowne thence, the ſpider to the flie in priſon leith: that in all kinds of triall that daie on both parts laide, he thinketh his owne part aproued beſt. as he thinketh the flie wolde thinke were he a ſpider contrarie iudgement wherof. the flie thinketh in the ſpider were he a flie. wherupon they agree to change places (eche for the time) to imagin and ſet foorth others part the beſt they can. Cap. 83.
+
+1. ¶ They hauing Chaunged places: they alege eche for his diſſembled ſide. Wherin the flie anone is ſo alured to pride and ambyſſyon in occupying (for the while) the ſpiders ſtatelie place, that he at laſt with an othe affirmeth that ſpiders are owners of all windowes. The ſpider graunting it trew, ſterteth to the flie, ſeeming to take end vpon the flies owne iudgement. Cap. 84.
+
+1. ¶ The flie out of that chaier falne flat before the ſpider, perſeyuing his ouerſight and daunger therin, he declareth howe change of place changed his affection. In diſcoorſing of which caſe, he partlie toucheth the commoditie of aduerſitie, and the diſcommoditie of proſperitie. Beſeeching the ſpider to relinquiſhe all aduauntage therin to be taken againſt him. Which the ſpider graunteth. Cap. 85.
+
+1. ¶ The ſpider vpon a glaunce geuen at his deſert of thanke to be had at the flies hand, alegeth cuſtom to be hys warrant to diſtroy the flie. Which the flie can not denie. Whervpon he deſireth that the caſe maie be reaſoned in conſcience. Which the ſpider now graunteth. Cap. 86.
+¶ They both laie ſundrie ſharpe reaſons inconſcience for the ſpiders life and death. But the ſpider 
+1. ¶ The flie (to twelue graue flies for all flies) geueth his aduice for a voiding their parels by their ſ•rife had in windowes againſt ſpiders. the great gronnde of which tale ſtandeth moſt vpon conſideration of theſe three things. wherfore they ſtriue, with whom they ſtriue, and how they ſtriue Cap. 88.
+
+1. ¶ As the ſpider is about to kill the flie, the mayde of the houſe commeth in and ſtriketh downe the copweb and the ſpider to the ground. Cap. 89.
+
+1. ¶ The maide being at poinet to treade the ſpider to death: the ſpider praieth her to here him ſpeake ere he die: and then to adiudge him iuſtlie. the maide graunting to vſe him (as he dyd vſe the flie) as maie beſt ſtand with reaſon, law, cuſtum, and conſcience. She at his requeſt (for the time) withdrawing hyr foote, they fall to reaſoning of the caſe. Cap. 90.
+
+1. ¶ In reaſoning of both ſides, the maide driueth the ſpider to graunt him ſelfe conuinſt (by cuſtom eyded with the other prin ciples erſt ſaide) as he conuinſt and adiudged the flie before. Whervpon ſhe (by cuſtom) decreth the ſpider to die. He then deſiring to ſpeake with his ſonne and his counſell. Which the mayde graunteth. Cap. 91.
+
+1. ¶ The ſpider to his ſonne and twelue ſpiders giueth his beſt abuiſe for moſt quiet and beſt gouernance. His tale ſtandinge moſt vpon theſe three terms, firſt a decleracion of him ſelfe, ſecond an exhortacion to them, the third a ſubmiſſion for him ſelf, whervnto he deſireth licēre to take his child in his armes: now at their departing, which the maide graunteth. Cap. 92.
+
+1. ¶ After a few wofull woordes of the ſpider had to his ſonne (they bothe claſpynge eche other in armes verie naturally) he •yſſeth and bliſſeth him. Wherewyth that ſonne with all the twelue ſpiders dolefullie departe from the ſpider. Cap. 93.
+
+1. ¶ The mayde (appeering as woe to diſtroye the ſpider as he is to be dyſtroyde) wyth her foote preſſeth hym to death. Cap. 94.
+
+1. ¶ The mayde hath before her the twelue ſpiders and the twelue flies that had bene before in place. And vpon her ſhow that all harms doone by thoſe generacions is growne by myſorder, ſhe fynally deuiſeth full redreſſe in poynting them to grow to order. Cap. 95.
+
+1. ¶ The twelue ſpiders and twelue flies hauyng herde theyr order ſet by the mayde, they thankefullie receyue it. And vpon her commaundement to them, to put thys order in vre amonge all ſpyders and flies, they ioyfullye departe that commaundement to fulfill. Cap. 96.
+
+1. ¶ The ſpiders and flies beynge now abſent, The mayde ſweepyth the wyndow cleane in euerie place. As far as her brome and arme wyll ſtretch, which doone ſhe departeth. Cap. 97
+
+1. ¶ The maide being gone, the auctor cūmeth in. And vpon hys beholding the wyndow fayre and cleane ſwept wythoute anie comberus copwebs or exceſſiue flockes of flies he departeth. Cap. 98.
+
+1. The concluſion with an expoſiſſion of the Auctor touching one peece of the latter part of this parable.
+
 #####Back#####
-The spider and the flie A parable of the spider and the flie, made by Iohn Heywood.Heywood, John, 14
+♣ IMPRINTED AT LONDON ♣ IN FLETESTRETE, BY THO. POVVELL. ♣ Cum priuilegio ad imprimendum ſolum.
 **Types of content**
 
   * There are 7603 **verse** lines!
